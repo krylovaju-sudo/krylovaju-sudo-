@@ -2,7 +2,7 @@ Biz Dev · Growth Marketer
 
 ***
 
-10+ years in product and growth across telecom, e-commerce, and blockchain.
+13+ years in product and growth across telecom, e-commerce, and blockchain.
 I help companies build customer-centric SaaS products and scale through
 data-driven marketing and AI-powered automation.
 
