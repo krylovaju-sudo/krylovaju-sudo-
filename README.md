@@ -1,4 +1,7 @@
-Biz Dev · Growth Marketer
+# Julia Krylova                                                                                                          
+   
+  ## Building hyperfocus.tech | Autonomous E-Commerce Ops                                                                  
+                                                            
 
 ***
 
